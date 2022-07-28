@@ -1,1 +1,1 @@
-iniciando novo curson em 28/07/2022
+iniciando novo curso em 28/07/2022
